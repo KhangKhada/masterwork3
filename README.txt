@@ -1,0 +1,2 @@
+https://docs.google.com/spreadsheets/d/11JZfYCO5k1iAJwOl_jVLHoIq7a-DmceMxVUauG1aVow/edit?usp=sharing
+Vì lần này em phải làm hai bài báo cáo lớn trong trường nên bài tập của em đã làm không được đầy đủ mong anh chị châm chước cho em lần này
